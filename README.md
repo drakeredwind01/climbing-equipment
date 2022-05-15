@@ -15,6 +15,7 @@ modular climbing equipment
 ## Hooks
 ![](https://m.media-amazon.com/images/I/61QPfOrn0qL._AC_SX679_.jpg)
 
+|CAPACITY| 1,202 LBS.|
 
 
 
