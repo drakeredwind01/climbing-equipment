@@ -13,7 +13,7 @@ modular climbing equipment
 
 
 ## Hooks
-![](media\Grappling Hook Stainless Steel Survival Folding Claw with Rope. Multifunctional Claw and Rope for The Outdoors Hiking, Camping, and Mountain Climbing     61QPfOrn0qL._AC_SX679_.jpg)
+![](https://m.media-amazon.com/images/I/61QPfOrn0qL._AC_SX679_.jpg)
 
 
 
